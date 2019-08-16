@@ -8,3 +8,4 @@ The first four of the eight lanes of the bridge were opened to the public on 30 
 All eight lanes were opened on 24 March 2010.
 The sea-link reduces travel time between Bandra and Worli during peak hours from 20–30 minutes to 10 minutes.
 As of October 2009, BWSL had an average daily traffic of around 37,500 vehicles.
+Its is open by Sonia Gandhi.
